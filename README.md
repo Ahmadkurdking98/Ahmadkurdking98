@@ -1,0 +1,4 @@
+- 👋 Hi, I’m HK
+- 👀 I’m interested in Developing, Editing, Fixing, Repairing, Programming, 
+- 🌱 I’m currently learning To Be Better
+- 📫 How to reach me Check BIO
