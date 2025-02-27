@@ -1,4 +1,6 @@
-- 👋 Hi, I’m HK
+- 👋 Hi, I’m Ahmad
 - 👀 I’m interested in Developing, Editing, Fixing, Repairing, Programming, 
-- 🌱 I’m currently learning To Be Better
-- 📫 How to reach me Check BIO
+- 🌱 I’m currently learning To Be Better at Gasha Institute Year 4 at Programming
+- 📫 How to reach me? 👇🏻
+- Snapchat: SadEndHK
+- Whatsapp: +964 0751 217 5799
